@@ -1,0 +1,2 @@
+
+É de importância absoluta que todo fluxo econômico associado à cooperativa seja gerido sob políticas de transparência radical e [[Orçamento|rigorosidade orçamentaria]], garantindo um sistema seguro, confiável e verificável, capaz de sustentar uma comunidade justa e próspera.
